@@ -12,5 +12,5 @@ A place to include any other types of information that you'd like to include abo
 
 ### Contact me
 
-[email@domain.com](Jaydenp9949@aurorak12.org)
-# Twitter: Jaydennicolepalmer
+[Jaydenp9949@aurorak12.org]
+
