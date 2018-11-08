@@ -19,11 +19,11 @@ Add the flour until it becomes a paste and slightly turns brown.
 
  To Carefully add the chicken you need to use a hot pan and cook it for 5 to 7 minutes.
 
-![google image search](/images/https://images.pexels.com/photos/144432/pexels-photo-144432.jpeg?cs=srgb&dl=bacon-chicken-cooking-144432.jpg&fm=jpg)
+![Almost cooked chicken](/images/https://images.pexels.com/photos/144432/pexels-photo-144432.jpeg?cs=srgb&dl=bacon-chicken-cooking-144432.jpg&fm=jpg)
 
 ### Step 3--Flip the chicken and cook until it reaches 165°F, 5 to 7 minutes more. And the gravy Slowly incorporate the chicken broth with a whisk.
 Whisk constantly until it thickens.
 
 #### Step 4--Slice and serve. Once thickened, add the chicken drippings and serve hot.
 
-![google image search](/images/https://images.pexels.com/photos/144432/pexels-photo-144432.jpeg?cs=srgb&dl=bacon-chicken-cooking-144432.jpg&fm=jpg)
+![Cooked chicken](/images/https://images.pexels.com/photos/144432/pexels-photo-144432.jpeg?cs=srgb&dl=bacon-chicken-cooking-144432.jpg&fm=jpg)
