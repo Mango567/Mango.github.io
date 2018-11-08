@@ -15,7 +15,7 @@ I don think it matters what kind of chicken you use or buy.
 
 ## Next, Heat the oil over medium-high heat in a large skillet. as for the gravy 
 Add the flour until it becomes a paste and slightly turns brown.
-![google image search](/images/)
+![google image search](/images/https://images.pexels.com/photos/236781/pexels-photo-236781.jpeg?cs=srgb&dl=chicken-dinner-dish-236781.jpg&fm=jpg)
 
  To Carefully add the chicken you need to use a hot pan and cook it for 5 to 7 minutes.
 
